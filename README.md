@@ -1,3 +1,3 @@
 # Gittest2
 test
-bulibulibulibulyulyu
+ブリブリブリブリブリュリュ！ブツチチブツチチブリリィリブブブブゥ！
